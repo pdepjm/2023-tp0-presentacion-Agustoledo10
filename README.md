@@ -9,7 +9,7 @@ Legajo: 2041121
 - Mi comida favorita es el asado con papas 
 - Mi pelo roza con la puerta del buffet de medrano kajskaj
 - Hice un par de rigs de mineria en 2021 (pero murio todo ya ajaj)
-- Fan de youtubers de productividad como Ali Abdaal y coas q se puedan hacer con Notion :D
+- Fan de youtubers de productividad como Ali Abdaal y cosas q se puedan hacer con Notion :D
 ***
 ### Mi top 3 de cosas:
 - Pelis:  Harry Potter el caliz de fuego, Kingsman, Shutter Island
